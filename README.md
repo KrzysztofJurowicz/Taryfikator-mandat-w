@@ -1,0 +1,1 @@
+# Taryfikator-mandat-w
